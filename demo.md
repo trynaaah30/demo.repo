@@ -1,1 +1,6 @@
+#TRYNAAAH FIRST FILE
 
+
+
+
+FCGSVHBJAMSDbvgwn hsgf
